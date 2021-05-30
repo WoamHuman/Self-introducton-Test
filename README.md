@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on no
 - 📫 How to reach me haoranl169@protonmail.com
 
-是一个又懒又馋、无所事事、啥都不会干的普普通通的***人类***
+是一个又懒又馋、无所事事、啥都不会干的普普通通的人类
 
 苦逼学生党一枚
 
